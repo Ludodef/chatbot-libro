@@ -1,6 +1,4 @@
 # 📚 Il Custode della Biblioteca Infinita
-di Ludovica De Fazio 
-defazioludovica95@gmail.com
 
 > "Benvenuto, viandante tra i volumi. Qui, tra il profumo della carta antica e il silenzio delle sale infinite, troveremo insieme la tua prossima storia."
 
